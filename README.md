@@ -5,7 +5,7 @@ Assistance à domicile, Maintenance et Réparation ordinateur
 
 Tel : 0694 38 37 87
 
-[https://ponytati.com](https://ponytati.com)
+Site officiel de l'entreprise : [https://ponytati.com](https://ponytati.com)
 
 Vous avez des problèmes avec votre ordinateur :
 Ne démarre plus, ralenti, écran bleu...
