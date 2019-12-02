@@ -3,7 +3,9 @@ Dépannage Informatique Guyane - Ponyta Informatique
 
 Assistance à domicile, Maintenance et Réparation ordinateur
 
-Tel : 0694 38 37 87
+Tél : 0694 38 37 87
+
+Horaires : 7 jours sur 7, de 9h00 à 22h00
 
 Site officiel de l'entreprise : [https://ponytati.com](https://ponytati.com)
 
