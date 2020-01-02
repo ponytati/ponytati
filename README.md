@@ -71,7 +71,7 @@ Annuaire et Avis
 
 [https://yellow.place/fr/ponyta-informatique-matoury-french-guiana-french-guiana](https://yellow.place/fr/ponyta-informatique-matoury-french-guiana-french-guiana)
 
-[https://www.kimino.net/ref-0-0-10-7.html](https://www.kimino.net/ref-0-0-10-7.html]
+[https://www.kimino.net/ref-0-0-10-7.html](https://www.kimino.net/ref-0-0-10-7.html)
 
 [https://www.webwiki.fr/ponytati.com](https://www.webwiki.fr/ponytati.com)
 
