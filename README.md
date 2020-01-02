@@ -24,6 +24,7 @@ Déplacement rapide à votre domicile ou bureau. Intervention au meilleur prix.
 Liste de lien mentionnant l'entreprise :
 
 Domaine
+
 [https://ponytati.com/sitemap.xml](https://ponytati.com/sitemap.xml)
 
 [https://oscomputer.fr](https://oscomputer.fr)
@@ -33,6 +34,7 @@ Domaine
 [https://net-line.fr](https://net-line.fr)
 
 Social
+
 [https://facebook.com/ponytati](https://facebook.com/ponytati)
 
 [https://www.instagram.com/ponyta.informatique](https://www.instagram.com/ponyta.informatique)
@@ -43,6 +45,7 @@ Social
 
 
 Programmation
+
 [https://sourceforge.net/u/orya/profile](https://sourceforge.net/u/orya/profile)
 
 [https://ponytati.github.io/ponytati](https://ponytati.github.io/ponytati)
@@ -51,6 +54,7 @@ Programmation
 
 
 Annuaire et Avis
+
 [https://depannage-informatique-guyane.business.site](https://depannage-informatique-guyane.business.site)
 
 [https://www.pagesjaunes.fr/pros/59801182](https://www.pagesjaunes.fr/pros/59801182)
@@ -74,6 +78,7 @@ Annuaire et Avis
 [https://www.mywot.com/scorecard/ponytati.com](https://www.mywot.com/scorecard/ponytati.com)
 
 Forum
+
 [https://forum.hardware.fr/hfr/profil-1171666.htm](https://forum.hardware.fr/hfr/profil-1171666.htm)
 
 [https://www.clubic.com/forum/u/ponytati](https://www.clubic.com/forum/u/ponytati)
