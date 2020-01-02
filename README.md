@@ -13,7 +13,7 @@ Vous avez des problèmes avec votre ordinateur :
 Ne démarre plus, ralenti, écran bleu, logiciel à paramétrer ou qui beugue, imprimante ne se connecte pas au pc...
 
 Contactez-nous ! Nous trouverons la solution pour vous aider.
-Un technicien expérimenté pour réparer, installer, configurer et paramétrer vos appareils informatique.
+Un technicien expérimenté pour réparer les dysfonctionnements, installer, configurer et paramétrer vos appareils informatique.
 
 Déplacement rapide à votre domicile ou bureau. Intervention au meilleur prix.
 
@@ -21,18 +21,32 @@ Déplacement rapide à votre domicile ou bureau. Intervention au meilleur prix.
 
 ;)
 
-Liste de lien externe :
+Liste de lien mentionnant l'entreprise :
+
+Domaine
+[https://ponytati.com/sitemap.xml](https://ponytati.com/sitemap.xml)
+
+[https://oscomputer.fr](https://oscomputer.fr)
+
+[https://sos-web.fr](https://sos-web.fr)
+
+[https://net-line.fr](https://net-line.fr)
 
 Social
 [https://facebook.com/ponytati](https://facebook.com/ponytati)
+
 [https://www.instagram.com/ponyta.informatique](https://www.instagram.com/ponyta.informatique)
+
 [https://twitter.com/ponytati](https://twitter.com/ponytati)
+
 [https://www.youtube.com/channel/UCwdgWhWeBp2TyFBqg7ayrlQ](https://www.youtube.com/channel/UCwdgWhWeBp2TyFBqg7ayrlQ)
 
 
 Programmation
 [https://sourceforge.net/u/orya/profile](https://sourceforge.net/u/orya/profile)
+
 [https://ponytati.github.io/ponytati](https://ponytati.github.io/ponytati)
+
 [https://website.grader.com/results/ponytati.com](https://website.grader.com/results/ponytati.com)
 
 
