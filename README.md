@@ -73,6 +73,10 @@ Annuaire et Avis
 
 [https://www.kimino.net/ref-0-0-10-7.html](https://www.kimino.net/ref-0-0-10-7.html)
 
+[https://www.lecameleon.com/ref-0-0-10-196.html](https://www.lecameleon.com/ref-0-0-10-196.html)
+
+[https://www.tousvoisins.fr/matoury/8452439-ponyta-informatique](https://www.tousvoisins.fr/matoury/8452439-ponyta-informatique)
+
 [https://www.webwiki.fr/ponytati.com](https://www.webwiki.fr/ponytati.com)
 
 [https://www.mywot.com/scorecard/ponytati.com](https://www.mywot.com/scorecard/ponytati.com)
