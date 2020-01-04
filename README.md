@@ -81,6 +81,8 @@ Annuaire et Avis
 
 [https://www.mywot.com/scorecard/ponytati.com](https://www.mywot.com/scorecard/ponytati.com)
 
+[https://www.starofservice.com/inv/professionnel/depannage-informatique/matoury/12793898/ponyta-informatique](https://www.starofservice.com/inv/professionnel/depannage-informatique/matoury/12793898/ponyta-informatique)
+
 Forum
 
 [https://forum.hardware.fr/hfr/profil-1171666.htm](https://forum.hardware.fr/hfr/profil-1171666.htm)
