@@ -43,6 +43,8 @@ Social
 
 [https://www.youtube.com/channel/UCwdgWhWeBp2TyFBqg7ayrlQ](https://www.youtube.com/channel/UCwdgWhWeBp2TyFBqg7ayrlQ)
 
+[https://www.linkedin.com/in/ponytati](https://www.linkedin.com/in/ponytati)
+
 
 Programmation
 
