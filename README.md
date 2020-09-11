@@ -2,7 +2,7 @@
 **Dépannage Informatique Guyane - Ponyta Informatique**
 
 
-Ponyta Informatique is the best computer repair in French Guiana : PC troubleshooting and technical support services.
+Ponyta Informatique is a computer repair company in French Guiana : PC troubleshooting and technical support services.
 
 
 Tél : 0694 38 37 87
@@ -92,6 +92,8 @@ Annuaire et Avis
 [https://www.mywot.com/scorecard/ponytati.com](https://www.mywot.com/scorecard/ponytati.com)
 
 [https://www.starofservice.com/inv/professionnel/depannage-informatique/matoury/12793898/ponyta-informatique](https://www.starofservice.com/inv/professionnel/depannage-informatique/matoury/12793898/ponyta-informatique)
+
+[https://fr.jooble.org/m/company/297793](https://fr.jooble.org/m/company/297793)
 
 Forum
 
