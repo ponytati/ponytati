@@ -1,13 +1,15 @@
 # ponytati
-**Dépannage Informatique Guyane - Ponyta Informatique**
+**Dépannage Informatique Guyane**
+
+
+Ponyta Informatique
+23 rue de la Locomotive 97351 Matoury
+0694383787
 
 
 Ponyta Informatique is a computer repair company in French Guiana : PC troubleshooting and technical support services.
 
-
-Tél : 0694 38 37 87
-
-Horaires : 7 jours sur 7, de 9h00 à 22h00
+Horaires : Du lundi au dimanche, 7 jours sur 7, de 9h00 à 22h00.
 
 Site officiel de l'entreprise : [https://ponytati.com](https://ponytati.com)
 
