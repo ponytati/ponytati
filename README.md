@@ -103,6 +103,8 @@ Annuaire et Avis
 
 [https://www.passtime.eu/offers/55684-votre-depanneur-informatique](https://www.passtime.eu/offers/55684-votre-depanneur-informatique)
 
+[https://www.expat.com/fr/entreprises/amerique-du-sud/guyane/16_informatique/depannage-informatique/](https://www.expat.com/fr/entreprises/amerique-du-sud/guyane/16_informatique/depannage-informatique/)
+
 Forum
 
 [https://forum.hardware.fr/hfr/profil-1171666.htm](https://forum.hardware.fr/hfr/profil-1171666.htm)
