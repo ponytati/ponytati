@@ -105,6 +105,8 @@ Annuaire et Avis
 
 [https://www.expat.com/fr/entreprises/amerique-du-sud/guyane/16_informatique/depannage-informatique/](https://www.expat.com/fr/entreprises/amerique-du-sud/guyane/16_informatique/depannage-informatique/)
 
+[https://fr.foursquare.com/v/ponyta-informatique/5fb7a2ff7793aa2d69a35750](https://fr.foursquare.com/v/ponyta-informatique/5fb7a2ff7793aa2d69a35750)
+
 Forum
 
 [https://forum.hardware.fr/hfr/profil-1171666.htm](https://forum.hardware.fr/hfr/profil-1171666.htm)
