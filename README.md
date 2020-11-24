@@ -109,6 +109,15 @@ Annuaire et Avis
 
 [https://www.infobel.com/fr/france/ponyta_informatique/matoury/FR108844237/businessdetails.aspx](https://www.infobel.com/fr/france/ponyta_informatique/matoury/FR108844237/businessdetails.aspx)
 
+[http://www.servicemalin.com/Depannage-Informatique-Guyane](http://www.servicemalin.com/Depannage-Informatique-Guyane)
+
+[https://vymaps.com/GF/Ponyta-Informatique-50992/](https://vymaps.com/GF/Ponyta-Informatique-50992/)
+
+[https://trouver-ouvert.fr/matoury/ponyta-informatique-1872489](https://trouver-ouvert.fr/matoury/ponyta-informatique-1872489)
+
+[https://www.cylex-locale.fr/entreprises/ponyta-informatique-14055389.html](https://www.cylex-locale.fr/entreprises/ponyta-informatique-14055389.html)
+
+
 Forum
 
 [https://forum.hardware.fr/hfr/profil-1171666.htm](https://forum.hardware.fr/hfr/profil-1171666.htm)
