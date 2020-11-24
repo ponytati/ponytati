@@ -107,6 +107,8 @@ Annuaire et Avis
 
 [https://fr.foursquare.com/v/ponyta-informatique/5fb7a2ff7793aa2d69a35750](https://fr.foursquare.com/v/ponyta-informatique/5fb7a2ff7793aa2d69a35750)
 
+[https://www.infobel.com/fr/france/ponyta_informatique/matoury/FR108844237/businessdetails.aspx](https://www.infobel.com/fr/france/ponyta_informatique/matoury/FR108844237/businessdetails.aspx)
+
 Forum
 
 [https://forum.hardware.fr/hfr/profil-1171666.htm](https://forum.hardware.fr/hfr/profil-1171666.htm)
