@@ -117,6 +117,7 @@ Annuaire et Avis
 
 [https://www.cylex-locale.fr/entreprises/ponyta-informatique-14055389.html](https://www.cylex-locale.fr/entreprises/ponyta-informatique-14055389.html)
 
+[https://nova.entreprises.gouv.fr/site/annuaire/detail.php?id=132279&h=mjpSgvof0Y1nJseMkZWYcPHVmJqiY&apercu=1](https://nova.entreprises.gouv.fr/site/annuaire/detail.php?id=132279&h=mjpSgvof0Y1nJseMkZWYcPHVmJqiY&apercu=1)
 
 Forum
 
