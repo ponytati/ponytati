@@ -119,6 +119,8 @@ Annuaire et Avis
 
 [https://nova.entreprises.gouv.fr/site/annuaire/detail.php?id=132279&h=mjpSgvof0Y1nJseMkZWYcPHVmJqiY&apercu=1](https://nova.entreprises.gouv.fr/site/annuaire/detail.php?id=132279&h=mjpSgvof0Y1nJseMkZWYcPHVmJqiY&apercu=1)
 
+[http://www.profils-auto-entrepreneurs.com/profil/ponyta.informatique](http://www.profils-auto-entrepreneurs.com/profil/ponyta.informatique)
+
 Forum
 
 [https://forum.hardware.fr/hfr/profil-1171666.htm](https://forum.hardware.fr/hfr/profil-1171666.htm)
