@@ -121,6 +121,8 @@ Annuaire et Avis
 
 [http://www.profils-auto-entrepreneurs.com/profil/ponyta.informatique](http://www.profils-auto-entrepreneurs.com/profil/ponyta.informatique)
 
+[https://www.pinterest.com/ponytati](https://www.pinterest.com/ponytati)
+
 Forum
 
 [https://forum.hardware.fr/hfr/profil-1171666.htm](https://forum.hardware.fr/hfr/profil-1171666.htm)
