@@ -41,6 +41,8 @@ Domaine
 
 [https://net-line.fr](https://net-line.fr)
 
+[https://vu360.fr](https://vu360.fr)
+
 Social
 
 [https://facebook.com/ponytati](https://facebook.com/ponytati)
@@ -52,6 +54,8 @@ Social
 [https://www.youtube.com/channel/UCwdgWhWeBp2TyFBqg7ayrlQ](https://www.youtube.com/channel/UCwdgWhWeBp2TyFBqg7ayrlQ)
 
 [https://www.linkedin.com/in/ponytati](https://www.linkedin.com/in/ponytati)
+
+[https://www.pinterest.com/ponytati](https://www.pinterest.com/ponytati)
 
 
 Programmation
@@ -73,7 +77,7 @@ Annuaire et Avis
 
 [https://www.vite-un-depanneur.fr/fiches/Q1BMVURfXFc](https://www.vite-un-depanneur.fr/fiches/Q1BMVURfXFc)
 
-[https://fr.mappy.com/poi/5dd7774954c4c0764a008dc8](https://fr.mappy.com/poi/5dd7774954c4c0764a008dc8)
+[https://fr.mappy.com/poi/5fd60ba5aa455b2ae5574220](https://fr.mappy.com/poi/5fd60ba5aa455b2ae5574220)
 
 [https://www.118000.fr/e_C0075096195](https://www.118000.fr/e_C0075096195)
 
@@ -81,11 +85,11 @@ Annuaire et Avis
 
 [https://yellow.place/fr/ponyta-informatique-matoury-french-guiana-french-guiana](https://yellow.place/fr/ponyta-informatique-matoury-french-guiana-french-guiana)
 
-[https://www.kimino.net/ref-0-0-10-7.html](https://www.kimino.net/ref-0-0-10-7.html)
+[https://www.kimino.net/ref-0-1-10-7.html](https://www.kimino.net/ref-0-1-10-7.html)
 
 [https://www.lecameleon.com/ref-0-0-10-196.html](https://www.lecameleon.com/ref-0-0-10-196.html)
 
-[https://www.submitcad.com/ref-0-0-10-63.html](https://www.submitcad.com/ref-0-0-10-63.html)
+[https://www.submitcad.com/ref-0-1-10-63.html](https://www.submitcad.com/ref-0-1-10-63.html)
 
 [https://www.lereferencementgratuit.com/ref-0-0-10-63.html](https://www.lereferencementgratuit.com/ref-0-0-10-63.html)
 
@@ -121,7 +125,8 @@ Annuaire et Avis
 
 [http://www.profils-auto-entrepreneurs.com/profil/ponyta.informatique](http://www.profils-auto-entrepreneurs.com/profil/ponyta.informatique)
 
-[https://www.pinterest.com/ponytati](https://www.pinterest.com/ponytati)
+[http://www.coodoeil.fr/P-243943-0-B1-depannage-informatique-guyane.html](http://www.coodoeil.fr/P-243943-0-B1-depannage-informatique-guyane.html)
+
 
 Forum
 
@@ -133,4 +138,4 @@ Forum
 
 [https://forum.hardware.fr/hfr/gsmgpspda/android/utiliser-wifi-android-sujet_33510_1.htm](https://forum.hardware.fr/hfr/gsmgpspda/android/utiliser-wifi-android-sujet_33510_1.htm)
 
-[https://www.blada.com/boite-aux-lettres/emploi-formation/offre/171031-Recherche_Electronicien_Matoury_.htm](https://www.blada.com/boite-aux-lettres/emploi-formation/offre/171031-Recherche_Electronicien_Matoury_.htm)
+
