@@ -4,7 +4,7 @@
 
 Ponyta Informatique
 
-23 rue de la Locomotive 97351 Matoury
+258 Avenue Justin Catayée, KELEX Route de la Madeleine, 97300 Cayenne
 
 0694383787
 
