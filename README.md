@@ -57,6 +57,18 @@ Social
 
 [https://www.pinterest.com/ponytati](https://www.pinterest.com/ponytati)
 
+[https://www.bing.com/public/ponytati](https://www.bing.com/public/ponytati)
+
+[https://discord.com/users/938821486813249546](https://discord.com/users/938821486813249546)
+
+[https://m.me/ponytati](https://m.me/ponytati)
+
+[https://www.snapchat.com/add/ponytati](https://www.snapchat.com/add/ponytati)
+
+[https://www.tiktok.com/@ponytati](https://www.tiktok.com/@ponytati)
+
+[https://wa.me/594694383787](https://wa.me/594694383787)
+
 
 Programmation
 
@@ -81,7 +93,7 @@ Annuaire et Avis
 
 [https://www.118000.fr/e_C0075096195](https://www.118000.fr/e_C0075096195)
 
-[https://annuaire.118712.fr/Guyane-973/Matoury-97351/Ponyta-informatique-0694383787_9E0070S00005F70300C50371S](https://annuaire.118712.fr/Guyane-973/Matoury-97351/Ponyta-informatique-0694383787_9E0070S00005F70300C50371S)
+[https://annuaire.118712.fr/en/Guyane-973/Cayenne-97300/Ponyta-informatique-0694383787_9E0070S00005F70300C50371S](https://annuaire.118712.fr/en/Guyane-973/Cayenne-97300/Ponyta-informatique-0694383787_9E0070S00005F70300C50371S)
 
 [https://yellow.place/fr/ponyta-informatique-matoury-french-guiana-french-guiana](https://yellow.place/fr/ponyta-informatique-matoury-french-guiana-french-guiana)
 
@@ -103,7 +115,7 @@ Annuaire et Avis
 
 [https://fr.jooble.org/m/company/297793](https://fr.jooble.org/m/company/297793)
 
-[https://www.petitfute.com/v36616-matoury-97351/c1085-maison-deco-jardin/c1078-depannage-reparation/c496-informatique/1942067-ponyta-informatique.html](https://www.petitfute.com/v36616-matoury-97351/c1085-maison-deco-jardin/c1078-depannage-reparation/c496-informatique/1942067-ponyta-informatique.html)
+[https://www.petitfute.com/v36609-cayenne-97300/c1085-maison-deco-jardin/c1078-depannage-reparation/c496-informatique/1942067-ponyta-informatique.html](https://www.petitfute.com/v36609-cayenne-97300/c1085-maison-deco-jardin/c1078-depannage-reparation/c496-informatique/1942067-ponyta-informatique.html)
 
 [https://www.passtime.eu/offers/55684-votre-depanneur-informatique](https://www.passtime.eu/offers/55684-votre-depanneur-informatique)
 
