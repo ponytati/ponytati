@@ -141,6 +141,10 @@ Annuaire et Avis
 
 [http://www.coodoeil.fr/P-243943-0-B1-depannage-informatique-guyane.html](http://www.coodoeil.fr/P-243943-0-B1-depannage-informatique-guyane.html)
 
+[https://fr.shoogle.net/guyane/cayenne/ponyta-informatique/](https://fr.shoogle.net/guyane/cayenne/ponyta-informatique/)
+
+[https://mapcarta.com/fr/N7899135268](https://mapcarta.com/fr/N7899135268)
+
 
 Forum
 
