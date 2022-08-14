@@ -61,7 +61,7 @@ Social
 
 [https://www.bing.com/maps?ss=ypid.YN8063x878394831185039079&mkt=fr-GF](https://www.bing.com/maps?ss=ypid.YN8063x878394831185039079&mkt=fr-GF)
 
-[https://maps.apple.com/place?q=Ponyta%20Informatique&auid=12827652127929113649&address=258%20Avenue%20Justin%20Catay%C3%A9e,%2097300%20Cayenne,%20French%20Guiana&ll=4.9296753936983695,-52.326014041900635] (https://maps.apple.com/place?q=Ponyta%20Informatique&auid=12827652127929113649&address=258%20Avenue%20Justin%20Catay%C3%A9e,%2097300%20Cayenne,%20French%20Guiana&ll=4.9296753936983695,-52.326014041900635)
+[https://maps.apple.com/place?q=Ponyta%20Informatique&auid=12827652127929113649] (https://maps.apple.com/place?q=Ponyta%20Informatique&auid=12827652127929113649)
 
 [https://discord.com/users/938821486813249546](https://discord.com/users/938821486813249546)
 
