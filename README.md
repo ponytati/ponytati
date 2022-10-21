@@ -141,6 +141,8 @@ Annuaire et Avis
 
 [https://nova.entreprises.gouv.fr/site/annuaire/detail.php?id=132279&h=mjpSgvof0Y1nJseMkZWYcPHVmJqiY&apercu=1](https://nova.entreprises.gouv.fr/site/annuaire/detail.php?id=132279&h=mjpSgvof0Y1nJseMkZWYcPHVmJqiY&apercu=1)
 
+[https://guyasap.com/trouver-un-prestataire-pres-de-chez-vous/business-listing/ponyta-informatique-2](https://guyasap.com/trouver-un-prestataire-pres-de-chez-vous/business-listing/ponyta-informatique-2)
+
 [http://www.profils-auto-entrepreneurs.com/profil/ponyta.informatique](http://www.profils-auto-entrepreneurs.com/profil/ponyta.informatique)
 
 [http://www.coodoeil.fr/P-243943-0-B1-depannage-informatique-guyane.html](http://www.coodoeil.fr/P-243943-0-B1-depannage-informatique-guyane.html)
